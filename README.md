@@ -1,0 +1,1 @@
+# ShopMate-AI-Driven-Customized-Retail-Solution
